@@ -40,19 +40,19 @@ Orange cream cheese frosting
     melted butter
 2. Grate the carrots and incorporate into the egg mixture.
 3. In another bowl, combine together the dry ingredients:
-    ground oats
-    quick oats
-    baking powder
-    baking soda
-    cinnamon
+    * ground oats
+    * quick oats
+    * baking powder
+    * baking soda
+    * cinnamon
 4. Pour dry ingredients into the wet ingredients, mixing together to combine.
 5. Pour into prepared baking dish 8 by 8 inch, smooth the top and bake at 180C degrees for 35 minutes. For Fan oven: 160C degress for 45 minutes.
 6. Let it cool and serve with: cream cheese, melted dark chocolate or honey.
 
 Orange cream cheese frosting
 1. Mix the ingredients:
-    cream cheese
-    maple syrup
-    orange juice
+    * cream cheese
+    * maple syrup
+    * orange juice
 
 [explain](https://youtu.be/uXljly6drps "Full video.")    
